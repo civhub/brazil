@@ -1,2 +1,2 @@
-# br-ico
+# Brazil (Icon Pack)
 Brazil (Icon Pack)
